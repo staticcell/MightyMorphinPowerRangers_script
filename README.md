@@ -1,0 +1,1 @@
+# MightyMorphinPowerRangers_script
